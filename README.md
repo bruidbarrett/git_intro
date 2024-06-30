@@ -1,1 +1,2 @@
 Tristan Barrett
+barrtris@oregonstate.edu
